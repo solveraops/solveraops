@@ -1,4 +1,4 @@
-# Hi, I'm Dorothy 👋
+# Hi, I'm Dorothy 👋🏽
 
 ### Founder · Solvera Operations Group
 
